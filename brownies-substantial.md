@@ -1,4 +1,4 @@
-# Brownies
+# Brownies (gehaltvoll)
 
 Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
 
