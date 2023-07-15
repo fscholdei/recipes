@@ -1,0 +1,26 @@
+# Nudelsalat
+
+*vegetarian*
+
+**8 Personen**
+
+---
+
+- *500 g* Nudeln (Penne/Fusili)
+- *1 Pestoglas* Grünes Pesto
+- *½ Pestoglas* Olivenöl
+- *½ Pestoglas* Balsamessig/Aceto balsamico
+- *x* Rucola
+- *x* Cherry Tomaten
+- *2* Mozzarella
+- *x* Parmesan
+- *ggf. etwas* Honig, Senf
+
+---
+
+1. Nudeln kochen und in ein großes Gefäß umfüllen
+2. Pesto zur Nudelmasse dazugeben
+3. Leeres Glas als Maß für Olivenöl und Essig (je halb voll) nutzen und ebenfalls dazugeben
+4. Wenn Nudeln abgekühlt sind, gewaschenen Rucola, kleingeschnittene Tomaten, Mozzarella und Parmesan dazugeben
+5. Einen guten Schuss Honig und einen Teelöffel Senf dazugeben, alles gut umrühren
+6. Mit Salz und Pfeffer abschmecken
