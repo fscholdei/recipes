@@ -8,8 +8,8 @@ Low-effort Variante als Grundlage für eine schnelle Pizza
 
 ---
 
-- *500 g* Mehl (Typ 405)
-- *300 ml* Wasser
+- *400 g* Mehl (Typ 405)
+- *240 ml* Wasser
 - *2 TL* Salz
 - *5 g* Frischhefe (oder mehr)
 
