@@ -2,7 +2,7 @@
 
 *vegetarian*
 
-**1 Blech**
+**1 Kuchen**
 
 ---
 
