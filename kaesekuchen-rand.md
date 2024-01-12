@@ -23,7 +23,7 @@
 3. Preiselbeeren auf dem Boden verteilen.
 4. 165 g Zucker und 70 g Butter verrühren.
 5. Nacheinander die 3 Eier unterrühren.
-6. Mehl zugeben und verrühren.
+6. 65 g Mehl zugeben und verrühren.
 7. Quark und Zimt zufügen und verrühren.
 8. Teig in eine 26er Springform füllen.
 9. Auf der mittleren Schiene bei ca. 175 Grad Umluft 50 Minuten backen lassen. Zur Not runterregeln, damit der Kuchen nicht verbrennt.
