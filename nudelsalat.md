@@ -10,10 +10,10 @@
 - *1 Pestoglas* Grünes Pesto
 - *½ Pestoglas* Olivenöl
 - *½ Pestoglas* Balsamessig/Aceto balsamico
-- *x* Rucola
-- *x* Cherry Tomaten
-- *2* Mozzarella
-- *x* Parmesan
+- *1 Pck* Rucola
+- *500 g* Cherry Tomaten
+- *2-3 Kugeln* Mozzarella
+- *1 Pck* Parmesan
 - *ggf. etwas* Honig, Senf
 
 ---
