@@ -25,7 +25,7 @@ Dünn ausgerollte Brotteig-Spezialität aus dem Elsass und Lothringen.
 2. Teig sehr dünn ausrollen.
 3. Sauerrahm mischen und auf dem Teig verteilen. Ränder nicht vergessen!
 4. Oberfläche ausgiebig mit Pfeffer würzen.
-5. Ofen auf ca. 222 Grad vorheizen.
+5. Ofen auf 222 °C vorheizen.
 6. Zwiebeln in dünne Scheiben schneiden.
 7. Teig mit Zwiebeln und Speck belegen.
 8. Auf der untersten Schiene bei hoher Temperatur 22 Minuten backen lassen. 

@@ -26,7 +26,7 @@ Der Apfelkuchen ist einer der klassischen Obstkuchen.
 3. Die Masse auf den Teig geben.
 4. Für die Streusel 200 g Margarine im Topf schmelzen, 275 g Mehl, 125 g Zucker, 1 TL Zimt und eine Prise Salz vermischen und dazugeben.
 5. Die Masse komplett abkühlen lassen und Streusel erzeugen, indem man Teig in die Hand nimmt und zwischen beiden Händen zerbröselt.
-6. Auf der mittleren Schiene bei ca. 175 Grad Umluft 45 Minuten backen lassen. Zur Not runterregeln, damit die Streusel nicht verbrennen.
+6. Auf der mittleren Schiene bei 175 °C Umluft 45 Minuten backen lassen. Zur Not herunterregeln, damit die Streusel nicht verbrennen.
 7. Passend dazu Sahne oder Vanilleeis servieren.
 
 Tipp: Streusel am besten über dem Kuchen auf dem Blech erzeugen, macht weniger Dreck ;)

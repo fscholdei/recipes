@@ -25,5 +25,5 @@ Ein Cookie ist ein traditioneller Keks der US-amerikanischen Küche.
 3. Mehl und Backpulver mit in die Masse einrühren.
 4. Zerkleinerte Schokolade und Nüsse unterheben.
 5. Den Teig mit einem Esslöffel auf ein mit Backpapier ausgelegtes Blech setzen.
-6. Teig in einem auf 175 °C vorgeheizten Ofen für 10 bis 12 Minuten backen lassen.
+6. Teig in einem auf 175 °C vorgeheizten Ofen für 10 bis 12 Minuten backen lassen.
 7. Anschließend mindestens 5 Minuten ruhen lassen.

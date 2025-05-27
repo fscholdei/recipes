@@ -18,7 +18,7 @@
 ---
 
 1. Das Kürbisfleisch in Würfel schneiden. 
-2. Zwiebel fein hacken und in der Butter andämpfen, die Kürbiswürfel zugeben und kurz mitdämpfen. 
+2. Zwiebel fein hacken und in der Butter an dämpfen, die Kürbiswürfel zugeben und kurz mitdämpfen. 
 3. Mit der Brühe ablöschen und so lange köcheln lassen, bis der Kürbis sehr weich ist. 
 4. Den Weißwein angießen und das Ganze weitere fünf Minuten kochen. 
 5. Mit Crème fraîche verfeinern und mit den Gewürzen abschmecken. 
