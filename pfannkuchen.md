@@ -2,7 +2,7 @@
 
 *breakfast, dinner, vegetarian*
 
-**3-4 Personen**
+**4 Personen**
 
 ---
 

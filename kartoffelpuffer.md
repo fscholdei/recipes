@@ -4,7 +4,7 @@ Trägt unterschiedliche Synonyme, meint aber das gleiche. Stellt ein eigenständ
 
 *dinner, vegetarian*
 
-**2-3 Personen**
+**2 Personen**
 
 ---
 
