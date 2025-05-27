@@ -10,9 +10,9 @@ Ein Cookie ist ein traditioneller Keks der US-amerikanischen Küche.
 
 - *250 g* Butter
 - *250 g* Rohrzucker
-- *175 g* Weißer Zucker
-- *1 TL* Butter-Vanille-Aroma (oder ½ Fläschchen)
-- *2* Eier
+- *175 g* Zucker
+- *0.5 FL* Butter-Vanille-Aroma
+- *2 St* Eier
 - *375 g* Mehl
 - *2 TL* Backpulver
 - *300 g* Bitterschokolade

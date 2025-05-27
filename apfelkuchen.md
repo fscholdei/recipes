@@ -11,12 +11,12 @@ Der Apfelkuchen ist einer der klassischen Obstkuchen.
 - *575 g* Mehl
 - *400 g* Margarine
 - *225 g* Zucker
-- *1* Ei
-- *1 Pck.* Vanillinzucker
-- *6* Äpfel (z.B. Elstar)
+- *1 St* Ei
+- *1 Pck* Vanillinzucker
+- *6 St* Äpfel (z.B. Elstar)
 - *350 g* Apfelmus
 - *1 TL* Zimt
-- *1 Prise* Salz
+- *1 Pr* Salz
 - *evtl.* Walnüsse o.ä.
 
 ---

@@ -12,7 +12,7 @@ Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
 - *240 g* Bitterschokolade
 - *240 g* Weißer Zucker
 - *240 g* Brauner Zucker
-- *4* Eier
+- *4 St* Eier
 - *240 g* Mehl
 - *2 TL* Vanillezucker
 - *etwas* Salz

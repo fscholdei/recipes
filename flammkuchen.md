@@ -10,12 +10,12 @@ Dünn ausgerollte Brotteig-Spezialität aus dem Elsass und Lothringen.
 
 - *2 EL* Öl
 - *125 ml* Wasser
-- *1 Prise* Salz
+- *1 Pr* Salz
 - *250 g* Mehl 
-- *200 g* Schmand / Saure Sahne (20-30% Fett)
-- *200 g* Crème fraîche (>30% Fett)
-- Pfeffer
-- *1-2* Zwiebeln
+- *200 g* Schmand / Saure Sahne (20-30 % Fett)
+- *200 g* Crème fraîche (>30 % Fett)
+- *etwas* Pfeffer
+- *2 St* Zwiebeln
 - *100 g* Speck oder geräuchertes Tofu
 - *evtl.* Schnittlauch
 

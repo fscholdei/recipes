@@ -9,7 +9,7 @@
 - *400 g* Mehl
 - *750 ml* Milch
 - *1 Prise* Salz
-- *3-4* Eier
+- *4 St* Eier
 - *etwas* Wasser
 - *etwas* Butter
 

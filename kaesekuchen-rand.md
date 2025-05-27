@@ -9,7 +9,7 @@
 - *415 g* Mehl
 - *2 TL* Backpulver
 - *265 g* Zucker
-- *4* Eier
+- *4 St* Eier
 - *2 g* Salz
 - *240 g* Butter
 - *175 g* Preiselbeeren

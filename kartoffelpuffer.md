@@ -9,8 +9,8 @@ Trägt unterschiedliche Synonyme, meint aber das gleiche. Stellt ein eigenständ
 ---
 
 - *1 kg* Kartoffeln
-- *1* Zwiebel
-- *1-2* Eier
+- *1 St* Zwiebel
+- *2 St* Eier
 - *1 TL* Salz
 - *1 EL* Mehl
 - *etwas* Öl

@@ -7,7 +7,7 @@
 ---
 
 - *400 g* Karotte
-- *4* Eier
+- *4 St* Eier
 - *250 g* Zucker
 - *100 g* Öl
 - *150 ml* Milch

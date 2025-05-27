@@ -8,16 +8,16 @@ Muffins gefüllt mit Schokolade und Kokosflocken.
 
 ---
 
-- *mind. 8* Bounty Riegel (~28 g)
+- *8 St* Bounty Riegel (~28 g)
 - *250 g* Mehl
-- *2½ EL* Kakaopulver
-- *2-3 TL* Backpulver 
-- *1* Ei
+- *2.5 EL* Kakaopulver
+- *0.5 Pck* Backpulver 
+- *1 St* Ei
 - *140 g* Zucker
 - *80 ml* Pflanzenöl
 - *250 g* Buttermilch
-- *evtl.* Schokolade für Glasur
-- *12* Papier-Backförmchen
+- *2 Tafeln* Schokolade für Glasur
+- *evtl.* Backförmchen
 
 ---
 
