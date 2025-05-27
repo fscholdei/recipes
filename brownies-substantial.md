@@ -22,11 +22,11 @@ Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
 ---
 
 1. Butter mit Bitterschokolade im Wasserbad schmelzen.
-2. Weißen Zucker und Braunen Zucker mit Butter und Schokoladenmasse vermischen.
+2. Weißen Zucker und braunen Zucker mit Butter und Schokoladenmasse vermischen.
 3. Die Eier dazugeben.
 4. Mehl mit zwei Teelöffel Vanillezucker und einer Prise Salz vermengen.
 5. Haselnüsse und Walnüsse unter die Masse heben.
 6. Teig auf einem mit Backpapier ausgelegtem Backblech verteilen.
-7. Umluft 160°C zirka 30 Minuten lang backen lassen.
+7. Umluft 160 °C zirka 30 Minuten lang backen lassen.
 
 Tipp: Schmeckt auch noch mit "nur" *210 g* Butter und jeweils *180 g* Zucker sehr lecker.

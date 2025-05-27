@@ -23,8 +23,8 @@
 1. Karotten reiben.
 2. Eier, Zucker, Öl, Milch und Zimt hinzugeben und verrühren.
 3. Mandeln, Mehl und Backpulver hinzugeben und verrühren.
-4. Teig in eine gefettete 26er Springform füllen.
-5. Auf der mittleren Schiene bei ca. 175 Grad Umluft 45 Minuten backen lassen. Zur Not runterregeln, damit der Kuchen nicht verbrennt.
+4. Teig in eine gefettete 26er-Springform füllen.
+5. Auf der mittleren Schiene bei 175 °C Umluft 45 Minuten backen lassen. Zur Not herunterregeln, damit der Kuchen nicht verbrennt.
 6. Für die Glasur zwei Tafeln Schokolade im Wasserbad schmelzen und über dem ausgekühlten Kuchen verteilen.
 
 Tipp: Stäbchenprobe machen und zur Not länger backen lassen :)
