@@ -2,7 +2,7 @@
 
 Trägt unterschiedliche Synonyme, meint aber das gleiche. Stellt ein eigenständiges Gericht oder eine Sättigungsbeilage dar.
 
-*vegetarian*
+*dinner, vegetarian*
 
 **2-3 Personen**
 

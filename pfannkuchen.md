@@ -1,6 +1,6 @@
 # Pfannkuchen
 
-*vegetarian*
+*breakfast, dinner, vegetarian*
 
 **3-4 Personen**
 

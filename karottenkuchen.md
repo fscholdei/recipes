@@ -1,6 +1,6 @@
 # Karottenkuchen
 
-*vegetarian*
+*cake, vegetarian*
 
 **1 Kuchen**
 

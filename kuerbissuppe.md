@@ -1,6 +1,6 @@
 # Kürbissuppe
 
-*vegetarian*
+*dinner, soup, vegetarian*
 
 **4 Personen**
 
