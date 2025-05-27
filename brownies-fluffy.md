@@ -4,7 +4,7 @@ Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
 
 *cake, vegetarian*
 
-**1 Blech**
+**1 Blech(e)**
 
 ---
 

@@ -4,7 +4,7 @@ Dünn ausgerollte Brotteig-Spezialität aus dem Elsass und Lothringen.
 
 *dinner, vegetarian*
 
-**1 Blech / 2 Portionen**
+**1 Blech(e)** / **2 Person(en)**
 
 ---
 

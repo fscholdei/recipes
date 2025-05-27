@@ -2,7 +2,7 @@
 
 *dinner, soup, vegetarian*
 
-**4 Personen**
+**4 Person(en)**
 
 ---
 
