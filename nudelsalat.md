@@ -8,13 +8,13 @@
 
 - *500 g* Nudeln (Penne/Fusili)
 - *1 Pestoglas* Grünes Pesto
-- *½ Pestoglas* Olivenöl
-- *½ Pestoglas* Balsamessig/Aceto balsamico
+- *0.5 Pestoglas* Olivenöl
+- *0.5 Pestoglas* Balsamessig/Aceto balsamico
 - *1 Pck* Rucola
 - *500 g* Cherry Tomaten
-- *2-3 Kugeln* Mozzarella
+- *3 Kugeln* Mozzarella
 - *1 Pck* Parmesan
-- *ggf. etwas* Honig, Senf
+- *evtl.* Honig, Senf
 
 ---
 

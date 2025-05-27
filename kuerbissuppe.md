@@ -7,13 +7,13 @@
 ---
 
 - *500 g* Kürbisfleisch
-- *1* Zwiebel
+- *1 St* Zwiebel
 - *1 EL* Butter
 - *500 ml* Gemüsebrühe
 - *100 ml* Weißwein
 - *200 ml* Crème fraîche
 - *etwas* Salz & Pfeffer
-- *ggf.* Ingwerpulver & Cayennepfeffer
+- *evtl.* Ingwerpulver & Cayennepfeffer
 
 ---
 
