@@ -1,6 +1,6 @@
 # Käsekuchen mit Rand (schwedisch)
 
-*vegetarian*
+*cake, vegetarian*
 
 **1 Kuchen**
 

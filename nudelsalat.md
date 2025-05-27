@@ -1,6 +1,6 @@
 # Nudelsalat
 
-*vegetarian*
+*salad, vegetarian*
 
 **8 Personen**
 

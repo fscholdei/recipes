@@ -2,7 +2,7 @@
 
 Muffins gefüllt mit Schokolade und Kokosflocken.
 
-*vegetarian*
+*dessert, vegetarian*
 
 **1 Blech / 12 Muffins**
 

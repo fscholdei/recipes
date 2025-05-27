@@ -2,7 +2,7 @@
 
 Der Apfelkuchen ist einer der klassischen Obstkuchen.
 
-*vegetarian*
+*cake, vegetarian*
 
 **1 Blech**
 

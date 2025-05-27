@@ -2,7 +2,7 @@
 
 Low-effort Variante als Grundlage für eine schnelle Pizza
 
-*any*
+*dinner, vegetarian*
 
 **1 Blech / 2 Portionen**
 

@@ -2,7 +2,7 @@
 
 Ein Cookie ist ein traditioneller Keks der US-amerikanischen Küche.
 
-*vegetarian*
+*dessert, vegetarian*
 
 **3 Bleche / ~100 Cookies**
 
