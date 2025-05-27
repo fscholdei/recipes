@@ -4,7 +4,7 @@ Muffins gefüllt mit Schokolade und Kokosflocken.
 
 *dessert, vegetarian*
 
-**2 Blech / 24 Muffins**
+**2 Blech(e)** / **24 Muffins**
 
 ---
 

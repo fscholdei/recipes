@@ -2,7 +2,7 @@
 
 *salad, vegetarian*
 
-**8 Personen**
+**8 Person(en)**
 
 ---
 
