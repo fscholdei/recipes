@@ -4,7 +4,7 @@ Muffins gefüllt mit Schokolade und Kokosflocken.
 
 *dessert, vegetarian*
 
-**1 Blech / 12 Muffins**
+**2 Blech / 24 Muffins**
 
 ---
 
@@ -21,11 +21,11 @@ Muffins gefüllt mit Schokolade und Kokosflocken.
 
 ---
 
-1. 6 Bounty-Riegel jeweils halbieren. Rest klein schneiden und in eine Schüssel geben.
+1. 6 Bounty-Riegel jeweils vierteln. Rest klein schneiden und in eine Schüssel geben.
 2. Restliche Zutaten in der Schüssel mischen und gut verrühren.
 3. Backofen auf 180 °C Umluft vorheizen.
 4. Backförmchen ins Muffins-Blech setzen.
-5. Die Hälfte des Teigs in die Förmchen aufteilen. Bountys einsetzen und mit dem restlichen Teig auffüllen.
+5. Je einen Esslöffel Teig in jedes Förmchen geben. Bountys einsetzen und etwas herunterdrücken.
 6. Auf der mittleren Schiene bei 180 °C Umluft 20-25 Minuten backen lassen. Zur Not herunterregeln, damit nichts verbrennt.
 7. 5 Minuten ruhen lassen, herausnehmen, abkühlen.
 8. Schokolade für Glasur schmelzen, Muffins eintauchen, ggf. weiter dekorieren.
