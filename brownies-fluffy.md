@@ -28,4 +28,4 @@ Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
 3. Zucker, Eier und Vanillezucker cremig schlagen.
 4. Mehl, Kakaopulver und Backpulver dazugeben.
 5. Restliche Zutaten unter die Masse heben.
-6. Umluft 150 °C zirka 20 Minuten lang backen lassen.
+6. Bei 150 °C Umluft zirka 20 Minuten backen lassen.
