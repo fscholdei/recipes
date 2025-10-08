@@ -8,10 +8,13 @@ Dünn ausgerollte Brotteig-Spezialität aus dem Elsass und Lothringen.
 
 ---
 
+## Boden
 - *2 EL* Öl
 - *125 ml* Wasser
 - *1 Pr* Salz
-- *250 g* Mehl 
+- *250 g* Mehl
+
+## Belag
 - *200 g* Schmand / Saure Sahne (20-30 % Fett)
 - *200 g* Crème fraîche (>30 % Fett)
 - *etwas* Pfeffer
