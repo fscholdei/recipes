@@ -1,5 +1,7 @@
 # Pizzasuppe
 
+Würzige Suppe mit Hackfleisch, Paprika und Tomaten.
+
 *dinner, soup*
 
 **? Person(en)**

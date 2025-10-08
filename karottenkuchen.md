@@ -1,5 +1,7 @@
 # Karottenkuchen
 
+Saftige Rüeblitorte mit Mandeln und Zimt.
+
 *cake, vegetarian*
 
 **1 Kuchen**

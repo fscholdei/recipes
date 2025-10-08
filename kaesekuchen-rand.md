@@ -1,4 +1,6 @@
-# Käsekuchen mit Rand (schwedisch)
+# Käsekuchen mit Rand
+
+Schwedischer Käsekuchen mit Preiselbeeren.
 
 *cake, vegetarian*
 
@@ -18,10 +20,10 @@
 
 ---
 
-1. 350 g Mehl, Backpulver, 80 g Zucker, 1 Ei, Salz, 170 g Butter vermischen.
+1. 350 g Mehl, Backpulver, 80 g Zucker, 1 Ei, Salz, 170 g Butter vermischen.
 2. Teig ausrollen, Boden und Wände in Springform mit Teig auskleiden.
 3. Preiselbeeren auf dem Boden verteilen.
-4. 165 g Zucker und 70 g Butter verrühren.
+4. 165 g Zucker und 70 g Butter verrühren.
 5. Nacheinander die 3 Eier unterrühren.
 6. 65 g Mehl zugeben und verrühren.
 7. Quark und Zimt zufügen und verrühren.

@@ -1,6 +1,6 @@
 # Brownies (gehaltvoll)
 
-Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
+Dichte, buttrige Schoko-Brownies mit kräftigem Nussbiss.
 
 *cake, vegetarian*
 
@@ -29,4 +29,4 @@ Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
 6. Teig auf einem mit Backpapier ausgelegtem Backblech verteilen.
 7. Bei 160 °C Umluft zirka 30 Minuten backen lassen.
 
-Tipp: Schmeckt auch noch mit "nur" *210 g* Butter und jeweils *180 g* Zucker sehr lecker.
+Tipp: Schmeckt auch noch mit "nur" *210 g* Butter und jeweils *180 g* Zucker sehr lecker.

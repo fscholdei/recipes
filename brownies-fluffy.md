@@ -1,6 +1,6 @@
 # Brownies (fluffig)
 
-Ein Brownie ist ein traditioneller Kuchen der US-amerikanischen Küche.
+Luftige Schoko-Brownies mit Nüssen und feiner Säurenote.
 
 *cake, vegetarian*
 

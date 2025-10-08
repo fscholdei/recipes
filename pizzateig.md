@@ -1,6 +1,6 @@
 # Pizzateig
 
-Low-effort Variante als Grundlage für eine schnelle Pizza
+Low-effort Variante als Grundlage für eine schnelle Pizza.
 
 *dinner, vegetarian*
 
