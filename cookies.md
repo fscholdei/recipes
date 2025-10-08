@@ -1,6 +1,6 @@
 # Cookies
 
-Ein Cookie ist ein traditioneller Keks der US-amerikanischen Küche.
+Knusprige Schoko-Kekse aus der US-amerikanischen Küche.
 
 *dessert, vegetarian*
 

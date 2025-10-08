@@ -1,5 +1,7 @@
 # Schwarzwälder Kirschtorte
 
+Schokoladentorte mit Kirschen, Sahne und Kirschwasser.
+
 *cake, vegetarian*
 
 **1 Torte**
@@ -31,7 +33,7 @@
 1. Schokolade mit Butter im Wasserbad schmelzen.
 2. Eier trennen; Eiweiß steif schlagen, Eigelb mit Zucker schaumig rühren.
 3. Schokladenmasse unterrühren, Mehl, Stärke und Backpulver mischen, darübersieben, Eischnee unterheben.
-4. Teig in 26er-Springform geben, bei 175 °C Umluft zirka 45 Minuten backen lassen.
+4. Teig in 26er-Springform geben, bei 175 °C Umluft zirka 45 Minuten backen lassen.
 5. Biskuit waagerecht in 3 Böden teilen.
 6. Kirschen abgießen, Saft auffangen. Stärke mit Zucker und etwas Saft anrühren, restlichen Saft aufkochen, Stärke einrühren, kurz kochen, Kirschen zugeben, etwas abkühlen, mit halbem Kirschwasser mischen.
 7. Zwei Böden mit Kirschwasser tränken, je die Hälfte der Kirschmasse darauf verteilen, gelieren lassen.

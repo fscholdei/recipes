@@ -1,6 +1,6 @@
 # Bounty-Muffins
 
-Muffins gefüllt mit Schokolade und Kokosflocken.
+Schokoladige Muffins mit süßer Kokosfüllung.
 
 *dessert, vegetarian*
 

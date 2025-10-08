@@ -1,5 +1,7 @@
 # Pfannkuchen
 
+Klassischer Pfannkuchenteig für süße oder herzhafte Varianten.
+
 *breakfast, dinner, vegetarian*
 
 **4 Person(en)**

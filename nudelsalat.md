@@ -1,5 +1,7 @@
 # Nudelsalat
 
+Nudelsalat mit grünem Pesto, Rucola und Cherry Tomaten.
+
 *salad, vegetarian*
 
 **8 Person(en)**

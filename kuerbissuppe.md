@@ -1,5 +1,7 @@
 # Kürbissuppe
 
+Cremige Kürbissuppe mit Ingwer und Sahne.
+
 *dinner, soup, vegetarian*
 
 **4 Person(en)**
