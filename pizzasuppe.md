@@ -23,10 +23,11 @@ Würzige Suppe mit Hackfleisch, Paprika und Tomaten.
 ---
 
 1. Zwiebeln würfeln und mit Hack in Olivenöl anbraten.
-2. Paprika würfeln und hinzufügen.
-3. Champignons und Mais hinzufügen.
-4. Gemüsebrühe, Passierte Tomaten und Sahne hinzufügen.
-5. Aufkochen und Schmelzkäse hinzufügen.
-6. Nach Belieben würzen.
+2. Gemüsebrühe, Passierte Tomaten und Sahne in einen Topf geben.
+3. Paprika würfeln und hinzufügen.
+4. Zwiebeln und Hack hinzufügen.
+5. Champignons und Mais hinzufügen.
+6. Aufkochen und Schmelzkäse hinzufügen.
+7. Nach Belieben würzen.
 
 Tipp: Dazu lässt sich wunderbar Baguette oder Weißbrot servieren.
