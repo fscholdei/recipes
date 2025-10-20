@@ -4,14 +4,14 @@ Low-effort Variante als Grundlage für eine schnelle Pizza.
 
 *dinner, vegetarian*
 
-**1 Blech(e)** / **2 Person(en)**
+**0.75 Blech(e)** / **1.5 Person(en)**
 
 ---
 
-- *400 g* Mehl (Typ 405)
-- *240 ml* Wasser
-- *2 TL* Salz
-- *5 g* Frischhefe (oder mehr)
+- *300 g* Mehl (Typ 405)
+- *180 ml* Wasser
+- *1.5 TL* Salz
+- *375 mg* Frischhefe (oder mehr)
 
 ---
 
