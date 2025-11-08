@@ -9,7 +9,7 @@ Knusprige Schoko-Kekse aus der US-amerikanischen Küche.
 ---
 
 - *250 g* Butter
-- *250 g* Rohrzucker
+- *250 g* Brauner Zucker
 - *175 g* Zucker
 - *0.5 FL* Butter-Vanille-Aroma
 - *2 St* Eier
