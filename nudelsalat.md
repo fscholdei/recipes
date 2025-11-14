@@ -9,12 +9,12 @@ Nudelsalat mit grünem Pesto, Rucola und Cherry Tomaten.
 ---
 
 - *500 g* Nudeln (Penne/Fusili)
-- *1 Pestoglas* Grünes Pesto
-- *0.5 Pestoglas* Olivenöl
-- *0.5 Pestoglas* Balsamessig/Aceto balsamico
+- *1 Gl* Grünes Pesto
+- *0.5 Gl* Olivenöl
+- *0.5 Gl* Balsamessig/Aceto balsamico
 - *1 Pck* Rucola
 - *500 g* Cherry Tomaten
-- *3 Kugeln* Mozzarella
+- *3 St* Mozzarella
 - *1 Pck* Parmesan
 - *evtl.* Honig, Senf
 

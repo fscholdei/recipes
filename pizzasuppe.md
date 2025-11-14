@@ -8,14 +8,14 @@ Würzige Suppe mit Hackfleisch, Paprika und Tomaten.
 
 ---
 
-- *2 St gr.* Zwiebeln
+- *2 St* Große Zwiebeln
 - *400 g* Hackfleisch
 - *etwas* Öl
 - *3 St* Paprika
-- *1 Dose* Champignons
-- *1 Dose* Mais
+- *1 Do* Champignons
+- *1 Do* Mais
 - *750 ml* Gemüsebrühe
-- *2 Pkg* Passierte Tomaten
+- *2 Pck* Passierte Tomaten
 - *200 ml* Sahne
 - *400 g* Schmelzkäse
 - *evtl.* Oregano, Pfeffer, Thymian, ...
