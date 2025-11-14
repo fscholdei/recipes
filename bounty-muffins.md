@@ -16,7 +16,7 @@ Schokoladige Muffins mit süßer Kokosfüllung.
 - *140 g* Zucker
 - *80 ml* Pflanzenöl
 - *250 g* Buttermilch
-- *2 Tafeln* Schokolade für Glasur
+- *200 g* Schokolade (für Glasur)
 - *evtl.* Backförmchen
 
 ---

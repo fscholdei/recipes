@@ -9,7 +9,7 @@ Ungarischer Hefefladen mit Knoblauch und Saurer Sahne.
 ---
 
 - *300 g* Kartoffeln
-- *0,5 Würfel* Hefe
+- *0.5 Wf* Hefe
 - *125 ml* Milch
 - *1 TL* Zucker
 - *1 TL* Salz
@@ -17,8 +17,8 @@ Ungarischer Hefefladen mit Knoblauch und Saurer Sahne.
 - *200 g* Dinkelmehl
 - *300 g* Weizenmehl
 - *reichlich* Fett
-- *1 Becher* Saure Sahne
-- *1 Zehe* Knoblauch
+- *1 Bch* Saure Sahne
+- *1 Z* Knoblauch
 - *1 Pck* Geriebener Käse
 - *etwas* Kräuter 
 ---
