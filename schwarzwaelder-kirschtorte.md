@@ -24,7 +24,7 @@ Schokoladentorte mit Kirschen, Sahne und Kirschwasser.
 - *2 EL* Zucker
 - *100 ml* Kirschwasser
 - *800 ml* Sahne
-- *3 Pck.* Vanillezucker
+- *3 Pck* Vanillezucker
 - *17 St* Belegkirschen
 - *100 g* Schokoladenraspel (zartbitter)
 
