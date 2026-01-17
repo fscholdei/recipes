@@ -11,7 +11,7 @@ Knusprige Reibekuchen aus frischen Kartoffeln.
 - *1 kg* Kartoffeln
 - *1 St* Zwiebel
 - *2 St* Eier
-- *1 TL* Salz
+- *2 TL* Salz
 - *1 EL* Mehl
 - *etwas* Öl
 
