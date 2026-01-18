@@ -4,20 +4,20 @@ Cremige Gemüsesuppe aus Karotten und Kartoffeln mit Käse-Tortellini.
 
 *dinner, soup*
 
-**? Person(en)**
+**4 Person(en)**
 
 ---
 
-- *300 g* Karotten
-- *1 St* Kleine Kartoffel
-- *1 St* Zwiebel
-- *1 St* Knoblauchzehe
-- *25 g* Butter
-- *100 g* Dosentomaten
-- *750 ml* Gemüsebrühe
-- *150 ml* Sahne
+- *700 g* Karotten
+- *2 St* Kleine Kartoffel
+- *2 St* Zwiebel
+- *2 St* Knoblauchzehe
+- *etwas* Butter
+- *200 g* Dosentomaten
+- *1500 ml* Gemüsebrühe
+- *300 ml* Sahne
 - *etwas* Salz, Pfeffer, Cayennepfeffer
-- *250 g* Tortellini mit Käsefüllung
+- *750 g* Tortellini mit Käsefüllung
 - *evtl.* Petersilie zum Garnieren
 
 ---
