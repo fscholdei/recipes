@@ -23,7 +23,7 @@ Luftige Schoko-Brownies mit Nüssen und feiner Säurenote.
 
 ---
 
-1. Butter mit etwa 225 g Bitterschokolade im Wasserbad schmelzen.
+1. Butter mit etwa *225 g* Bitterschokolade im Wasserbad schmelzen.
 2. Restliche Bitterschokolade grob hacken.
 3. Zucker, Eier und Vanillezucker cremig schlagen.
 4. Mehl, Kakaopulver und Backpulver dazugeben.
