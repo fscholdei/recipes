@@ -4,7 +4,7 @@ Ungarischer Hefefladen mit Knoblauch und Saurer Sahne.
 
 *dinner, vegetarian*
 
-**4 Person(en)**
+**12 Stück(e)** / **4 Person(en)**
 
 ---
 
@@ -17,8 +17,8 @@ Ungarischer Hefefladen mit Knoblauch und Saurer Sahne.
 - *200 g* Dinkelmehl
 - *300 g* Weizenmehl
 - *reichlich* Fett
-- *1 Bch* Saure Sahne
-- *1 Z* Knoblauch
+- *2 Bch* Saure Sahne
+- *4 Z* Knoblauch
 - *1 Pck* Geriebener Käse
 - *etwas* Kräuter 
 ---
