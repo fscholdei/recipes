@@ -26,6 +26,6 @@ Schokoladige Muffins mit süßer Kokosfüllung.
 3. Backofen auf 180 °C Umluft vorheizen.
 4. Backförmchen ins Muffins-Blech setzen.
 5. Je einen Esslöffel Teig in jedes Förmchen geben. Bountys einsetzen und etwas herunterdrücken.
-6. Auf der mittleren Schiene bei 180 °C Umluft 20-25 Minuten backen lassen. Zur Not herunterregeln, damit nichts verbrennt.
+6. Auf der mittleren Schiene bei 180 °C Umluft 20–25 Minuten backen lassen. Zur Not herunterregeln, damit nichts verbrennt.
 7. 5 Minuten ruhen lassen, herausnehmen, abkühlen.
 8. Schokolade für Glasur schmelzen, Muffins eintauchen, ggf. weiter dekorieren.

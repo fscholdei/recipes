@@ -16,7 +16,7 @@ Knusprige Schoko-Kekse aus der US-amerikanischen Küche.
 - *375 g* Mehl
 - *2 TL* Backpulver
 - *300 g* Bitterschokolade
-- *125–200 g* Nüsse
+- *150 g* Nüsse
 
 ---
 

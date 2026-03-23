@@ -13,7 +13,7 @@ Cremige Kürbissuppe mit Ingwer und Sahne.
 - *1 EL* Butter
 - *500 ml* Gemüsebrühe
 - *100 ml* Weißwein
-- *200 ml* Crème fraîche
+- *200 g* Crème fraîche
 - *etwas* Salz & Pfeffer
 - *evtl.* Ingwerpulver & Cayennepfeffer
 

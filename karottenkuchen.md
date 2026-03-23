@@ -8,7 +8,7 @@ Saftige Rüeblitorte mit Mandeln und Zimt.
 
 ---
 
-- *400 g* Karotte
+- *400 g* Karotten
 - *4 St* Eier
 - *250 g* Zucker
 - *100 g* Öl
