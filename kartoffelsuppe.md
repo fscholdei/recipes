@@ -11,7 +11,7 @@ Herzhafte, cremig pürierte Suppe mit Speck und Wiener Würstchen.
 - *800 g* Kartoffeln
 - *1 St* Suppengrün
 - *100 g* Speckwürfel
-- *etwas Butter*
+- *etwas* Butter
 - *1 l* Gemüsebrühe
 - *etwas* Salz, Pfeffer, Muskatnuss
 - *1 Gl* Wiener Würstchen
