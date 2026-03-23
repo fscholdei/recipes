@@ -15,7 +15,7 @@ Herzhafte, cremig pürierte Suppe mit Speck und Wiener Würstchen.
 - *1 l* Gemüsebrühe
 - *etwas* Salz, Pfeffer, Muskatnuss
 - *1 Gl* Wiener Würstchen
-- *2 EL* Petersilie
+- *evtl.* Petersilie zum Garnieren
 
 ---
 
@@ -25,4 +25,5 @@ Herzhafte, cremig pürierte Suppe mit Speck und Wiener Würstchen.
 4. Alles mindestens 30 Minuten weich kochen lassen.
 5. Mit Gewürzen abschmecken.
 6. Würstchen in Stücke schneiden und dazugeben.
-7. Mit Petersilie bestreuen und servieren.
+
+Tipp: Mit frisch gehackter Petersilie bestreuen und servieren.
