@@ -1,6 +1,6 @@
 # Spätzle mit Hähnchen
 
-Pfanne mit Spätzle, Hähnchen und einer cremig-pikanten Sauce.
+Spätzle mit Hähnchen und einer cremig-pikanten Sauce.
 
 *dinner*
 

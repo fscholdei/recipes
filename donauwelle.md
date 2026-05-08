@@ -15,9 +15,9 @@ Blechkuchen mit Kirschen, Vanillecreme und zweifarbiger Schokoladenglasur.
 - *2 TL* Backpulver
 - *1 EL* Kakao
 - *2 Gl* Sauerkirschen (mind. *1200 g*, abgetropft)
-- *500 ml* Milch
+- *1 l* Milch
 - *2 Pck* Vanillepuddingpulver
-- *4 EL* Zucker (für den Pudding)
+- *6 EL* Zucker (für den Pudding)
 - *200 g* Schokolade
 - *100 g* Weiße Schokolade
 
