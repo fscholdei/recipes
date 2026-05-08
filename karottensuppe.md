@@ -31,4 +31,4 @@ Cremige Gemüsesuppe aus Karotten und Kartoffeln mit Käse-Tortellini.
 7. Parallel Tortellini nach Packungsanleitung zubereiten.
 8. Suppe nochmals aufkochen und Tortellini einlegen.
 
-Tipp: Mit frisch gehackter Petersilie bestreuen und servieren.
+Tipp: Mit frisch gehackter Petersilie bestreut servieren.

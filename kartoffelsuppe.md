@@ -26,4 +26,4 @@ Herzhafte, cremig pürierte Suppe mit Speck und Wiener Würstchen.
 5. Mit Gewürzen abschmecken.
 6. Würstchen in Stücke schneiden und dazugeben.
 
-Tipp: Mit frisch gehackter Petersilie bestreuen und servieren.
+Tipp: Mit frisch gehackter Petersilie bestreut servieren.
