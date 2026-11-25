@@ -4,7 +4,7 @@ Würzige Suppe mit Hackfleisch, Paprika und Tomaten.
 
 *dinner, soup*
 
-**? Person(en)**
+**6 Portion(en)**
 
 ---
 
